@@ -1,3 +1,5 @@
 php is the best language of the world!!!
 
-you idot! C++ is the best!!!
+you idiot! C++ is the best!!!
+
+bullshit! python is the king !
