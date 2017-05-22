@@ -4,4 +4,4 @@ you idiot! C++ is the best!!!
 
 bullshit! python is the king!
 
-hhahah
+heheheheh
